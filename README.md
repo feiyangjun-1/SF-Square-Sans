@@ -1,3 +1,3 @@
 # 方羊鱼体
 预览：
-![image]()
+![image](https://sm.ms/image/lbPy4ewrSt3zFuN)
